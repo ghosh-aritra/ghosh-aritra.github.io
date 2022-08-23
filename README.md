@@ -1,1 +1,0 @@
-# ghosh-aritra.github.io
